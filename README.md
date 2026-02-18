@@ -1,4 +1,4 @@
-#  👩🏻‍💻 Mariana Soares
+#  Mariana Soares
 
 **`Estudante de telecomunicações`**
 
